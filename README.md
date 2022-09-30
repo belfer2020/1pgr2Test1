@@ -4,3 +4,4 @@ Byłem tutaj
 Jestem Maks mam 15 lat
 Chodzę do 1p w ZSTI w Gliwicach
 Jestem tu
+NIe ma mnie 
